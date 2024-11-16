@@ -4,4 +4,4 @@
 - 📫 Elérhetsz Discordon: @vivca.
 - ⚡ Fun fact: annyira nem kedvelem a programozást, viszont izgalmasnak, érdekesnek tartom azt.
 
-@aggiczy is my everything<3
+[@aggiczy](https://github.com/aggiczy) is my everything<3
